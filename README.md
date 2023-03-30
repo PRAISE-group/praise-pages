@@ -1,1 +1,1 @@
-# praise-pages
+# PRAISE group
